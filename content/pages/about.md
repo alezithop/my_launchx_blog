@@ -7,7 +7,7 @@ menu:
 
 ## Who am I
 
-Hola, aquí vas a leer un poco sobre mi 🤩
+Hola, aquí vas a leer un poco sobre mi 🤩 La verdad no tengo ganas de escribir, por ahora lo dejaré así :)
 
 > Excidit gente, si orat suo quaeque dura Calydon nata? Pars auro post stetit
 > adfusique imis amplexus. Agmina per fabricator
